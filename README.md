@@ -6,4 +6,4 @@ I am a passionate developer, technologist, designer, and human (I swear). Check 
 * [☕Fika](https://boardgamearena.com/gamepanel?game=fika)
 
 ✨ Enjoy something I've done and want to buy me a coffee? I won't stop you 😉
-* [🎁🐎👄PayPal](https://paypal.me)
+* [🎁🐎👄PayPal](https://paypal.me/FletcherST)
